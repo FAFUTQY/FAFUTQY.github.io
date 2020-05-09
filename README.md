@@ -1,0 +1,1 @@
+# FAFUTQY.github.io
